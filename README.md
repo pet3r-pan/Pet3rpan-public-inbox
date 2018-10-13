@@ -1,1 +1,1 @@
-# Pet3rpan-s-public-inbox
+# I don't like email, make an issue instead :)
